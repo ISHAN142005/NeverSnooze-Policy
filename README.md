@@ -62,4 +62,4 @@ NeverSnooze does not knowingly collect any personal information from children un
 ## 7. Contact Us
 
 If you have any questions, suggestions, or concerns regarding this Privacy Policy, please contact us at:  
-**Support Email:** support@neversnooze.app
+**Support Email:** ishanbohra1414@gmail.com
